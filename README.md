@@ -1,4 +1,4 @@
-# Brice-Rodson-BOKATOLA-EBANGA
+# Brice Rodson BOKATOLA EBANGA
 
 # 💫 À propos de moi:
 Je suis Brice Rodson BOKATOLA EBANGA creative developer web designer 💻 et Etudiant Entrepreneur.<br>Qu'est-ce que je fais ?<br>je vais vous dire ça !<br>Je pars de la pensée d'un projet aux dessins sur papiers 🗒🖌, du dessin sur papier aux maquettages ainsi qu'aux prototypages, enfin à l'implémentation au code avec un language de programmation apropié au projet. Pour tout ce qui est logo, illustration comme flyers je pars de la pensé à un ou plusieurs dessin sur papier.<br>Amoureux du code, du référencement naturel (SEO) des sites web. Je fais partie du monde de developer et de Designer web, ce qui fait de moi un Homme ayant plusieurs casquettes 🧢.
